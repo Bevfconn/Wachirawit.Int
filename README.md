@@ -14,9 +14,6 @@ Hi, My name is Wachirawit Intim, and my nickname is Phone. I have experience wor
 ### Skills
 
 
-<p align="left">
-ICON ICON ICON ICON ICON
-</p>
 
 
 ### Socials
